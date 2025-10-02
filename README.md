@@ -194,6 +194,10 @@ For day-to-day savings on your expenses, this card can be a game changer so it i
 
 --- Access the real-time 3D development platform and workflows professionals use to create immersive experiences across industries. Free for students.
 
+### [Perplexity](https://plex.it/referrals/Z8BJZCMM)
+
+--- 12 Months of Perplexity Pro (NO CREDIT CARD REQUIRED). Access to Study Mode for interactive flashcards and quizzes, 10x as many citations in answers, Access to Perplexity Labs, Unlimited file and photo uploads, Extended access to Perplexity Research, One subscription for all the latest AI models including GPT-5 and Claude Sonnet 4, $5.00 in API credits & Exclusive access to Pro Perks and more.
+
 # Transport 🚌
 
 ### [Auckland Transport](https://at.govt.nz/bus-train-ferry/at-hop-card/card-concessions-discount-fares/tertiary-student-concession)

@@ -77,7 +77,7 @@ For day-to-day savings on your expenses, this card can be a game changer so it i
 
 ### [Spotify](https://www.spotify.com/nz/student/)
 
--- Premium free for 1 month, $8.99 per month after.
+-- Premium free for 1 month, $10.50 per month after.
 
 ### [Soundcloud](https://checkout.soundcloud.com/student)
 
